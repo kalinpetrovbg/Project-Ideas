@@ -1,1 +1,1 @@
-# Project_Ideas
+This is a Repository where I will list potential projects.
