@@ -3,4 +3,4 @@ Here is the list of people who participate:
 
 1. Kalin Petrov - kalinpetrovbg
 2. Nikolay Kapralov - Nikikapralov
-3. ...
+3. Така и никой не се включи :) 
